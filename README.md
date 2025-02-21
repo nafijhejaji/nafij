@@ -1,13 +1,1 @@
-### I am m4ster.o
-
-
-
-
-- 🔭 I’m currently working on Facebook Security
-- 🌱 I’m currently learning coading 
-- 👯 I’m a proud member of Don's Community ...
-- 🤔 I’m looking for help with ...
-- 💬 im a beginner
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 
